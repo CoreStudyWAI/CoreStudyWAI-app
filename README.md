@@ -22,7 +22,7 @@
 ## 📧 Contact & Social
 
 - Instagram: [@corestudywai](https://www.instagram.com/corestudywai?igsh=ZHhyNjcwemJuYjcx)
-- Telegram: [@corestudybot](https://t.me/CoreStudyWAI)
+- Telegram: [@corestudyWAI](https://t.me/CoreStudyWAI)
 
 ---
 
